@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @radio-sama
+- 👋 Hi, I’m big jon
 - 👀 I’m interested in chasing the bag!!!
 - 🌱 I’m currently learning how to love
 - 💞️ I’m looking to collaborate on a 2 man
