@@ -1,7 +1,7 @@
-- 👋 Hi, I’m big jon
+- 👋 Hi, I’m jon
 - 👀 I’m interested in chasing the bag!!!
-- 🌱 I’m currently learning how to love
-- 💞️ I’m looking to collaborate on a 2 man
-- 📫 How to reach me: carrier pidgeon
+- 🌱 I’m currently a Freshman at Purdue University.
+- 💞️ I'm looking to gain experience through projects and internships.
+- 📫 How to reach me: jonathon@jonstewart.org, or stewa598@purdue.edu
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: fun fact
